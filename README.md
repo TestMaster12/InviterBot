@@ -10,5 +10,11 @@ Inviter Bot
 
 # our other bots !
 [@TeleTard](https://telegram.me/TeleTard)
+
 برای خرید گروه های ضداسپم ربات TeleTard به آیدی زیر مراجعه کنید!
+
 [@mahdi17177](https://telegram.me/mahdi17177)
+
+
+# my Telegram !
+[@Ferisystem](https://telegram.me/ferisystem)
